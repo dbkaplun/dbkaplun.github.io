@@ -1,4 +1,4 @@
-[http://secrettriangle.net](http://secrettriangle.net)
+[http://dbkaplun.com](http://dbkaplun.com)
 ====================
 
 Dan Kaplun's resume/portfolio
